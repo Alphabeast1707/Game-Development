@@ -50,7 +50,15 @@ The game received appreciation from **Samay Raina** on Instagram!
 
 ## 📸 Screenshots
 
-*(Add your gameplay screenshots here)*
+![image](https://github.com/user-attachments/assets/af638eca-c182-4fdb-8da4-c66df39b73b7)
+![image](https://github.com/user-attachments/assets/c3c9516d-0764-4039-9ac6-d94269fd12bb)
+![image](https://github.com/user-attachments/assets/241f597b-1d87-4b07-a792-937352e1b5dd)
+![image](https://github.com/user-attachments/assets/cf8d38b7-bce2-47aa-970e-0f9278523137)
+![image](https://github.com/user-attachments/assets/cf95fee5-c5c4-45ea-980a-2ab721e3c49a)
+![image](https://github.com/user-attachments/assets/9f75a528-dc02-43ab-a1e4-ec05b106bc49)
+![image](https://github.com/user-attachments/assets/c07ce558-ae95-4a41-b620-60f02860fe8b)
+![image](https://github.com/user-attachments/assets/4c2c3033-796f-46ce-9672-4c7f33969198)
+
 
 ---
 
